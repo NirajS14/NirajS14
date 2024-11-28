@@ -1,0 +1,7 @@
+- 👋 Hi, I’m NirajSingh
+- 👀 I’m interested in Technical writing 
+- 🌱 I’m currently learning in it which is my interest
+- 💞️ I’m looking to collaborate on github in from of time
+- 📫 How to reach me ... Follow OR Message in github I will be connect you
+- 😄 Pronouns: ❤️
+- ⚡ Fun fact: Imaginary. At least 7 because Thala for a reason
